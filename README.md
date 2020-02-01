@@ -21,3 +21,4 @@ Dm me for stupid reason = BAN.
 Made by cowwy#4291
 
 
+discord.gg/ZHMsGds
