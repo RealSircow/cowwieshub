@@ -8,13 +8,13 @@ Tell The Bot "5l9643dgumzt", !getscript
 
 He will give you the script.
 
-#rules
+# rules
 No Cracking The Script.
 No Saying I suck.
 No Shaming me cause my hub is not the best.
 Dm me for stupid reason = BAN.
 
-#Credits
+# Credits
 Made by cowwie#4291
 
 
