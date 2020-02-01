@@ -10,8 +10,11 @@ He will give you the script.
 
 # rules
 No Cracking The Script.
+
 No Saying I suck.
+
 No Shaming me cause my hub is not the best.
+
 Dm me for stupid reason = BAN.
 
 # Credits
