@@ -18,6 +18,6 @@ No Shaming me cause my hub is not the best.
 Dm me for stupid reason = BAN.
 
 # Credits
-Made by cowwie#4291
+Made by cowwy#4291
 
 
